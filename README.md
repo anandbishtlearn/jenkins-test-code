@@ -1,1 +1,1 @@
-I love you ChatGPT
+I HATE you ChatGPT
